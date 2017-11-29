@@ -1,0 +1,1 @@
+# Escultura_Barroca_leitura_de_imagem
